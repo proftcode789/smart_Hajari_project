@@ -1,0 +1,1 @@
+# smart_Hajari_project
